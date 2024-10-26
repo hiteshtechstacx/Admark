@@ -1,0 +1,2 @@
+# Admark
+A MARKETING MODEL
